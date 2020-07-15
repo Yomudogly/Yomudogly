@@ -8,4 +8,4 @@
 
 #### My contacts 📌:
 
-### [LinkedIn](https://www.linkedin.com/in/khalnepes/) - [Twitter](https://twitter.com/Yomudogly) - [Telegram](https://telegram.me/khalnepes)
+<div style="text-align: justify">### [LinkedIn](https://www.linkedin.com/in/khalnepes/) [Twitter](https://twitter.com/Yomudogly) [Telegram](https://telegram.me/khalnepes)</div>
