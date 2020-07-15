@@ -1,1 +1,1 @@
-![image](https://github.com/Yomudogly/Yomudogly/blob/master/hello.gif)
+![image](https://github.com/Yomudogly/Yomudogly/blob/master/o.jpeg)
