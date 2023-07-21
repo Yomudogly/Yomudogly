@@ -6,4 +6,4 @@
 
 ### My contacts 📌:
 
-### [LinkedIn](https://www.linkedin.com/in/khalnepes/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Twitter](https://twitter.com/Yomudogly)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Telegram](https://telegram.me/khalnepes)
+### [LinkedIn](https://www.linkedin.com/in/yomudogly/)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Twitter](https://twitter.com/Yomudogly)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Telegram](https://telegram.me/yomudogly)
